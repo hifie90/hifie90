@@ -1,7 +1,7 @@
 ## Hi, I'm Prasansha aka hifie90!!! 👋
 
 👩‍🎓 I’m currently studying in Sunway College affilated to Birmingham City University, UK.<br/>
-👩‍💻 Diving into tech more day by day.<br/>
+👩‍💻 Diving into tech.<br/>
 🎨 Love to design.<br/>
 
 
